@@ -1,0 +1,1 @@
+Tata cara belajar sabar dan ikhlas
